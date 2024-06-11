@@ -14,10 +14,10 @@ Ah, yes---that is my history---the history of intellectual and aesthetic experie
 
 But in my ninth year, as I was reading the Grecian myths in their standard poetical translations and, thus acquiring unconsciously my taste for Queen-Anne English, the real foundations of my scepticism were laid. Impelled by the crude but fascinating pictures of scientific instruments in the back of Webster's Unabridged, I began to take an interest in natural philosophy and chemistry; and soon had a promising laboratory in my cellar, and a new stock of simple scientific text-books in my budding library. The books will never leave me, but the labor- atory, after being transferred to this house, I am giving to my "Alma Mater", Hope Street High School, as final domestic dispersal becomes imminent. Ere long I was more of a scientific student than pagan dreamer. In 1897 my leading literary work is a "poem" entitled "The Poem of Ulysses: or, The New Odyssey." In 1899 it was a compendious treatise on chemistry in several pencil-scribbled volumes. But myth- ology was by no means neglected. In this period I read much in Egyptian, Hindoo, and Teutonic mythology, and tried experiments in pretending to believe each one, to see which might contain the greatest amount of truth. I had, it will be noted, immediately adopted the method and manner of science! Naturally, having an open and unemotional mind, I was soon a complete sceptic and materialist. My scientific studies had enlarged to include geographical, biological, and astronomical rudi- ments, and I had acquired the habit of relentless analysis in all matters. My pompous "book" called "Poemata Minora", written when I was eleven, was dedicated "To the Gods, Heroes, and Ideals of the Ancients", and harped in disillusioned, world-weary tones on the sorrow of the pagan robbed of his antique pantheon. One of the stanzas from my "Ode to Selene or Diana" runs as follows:
 
-Take heed, Diana, of my humble plea;
-	Convey me where my happiness shall last---
- Draw me against the tide of time's rough sea,
- 	And let my spirit rest amidst the past.
+Take heed, Diana, of my humble plea;   
+	Convey me where my happiness shall last---   
+ Draw me against the tide of time's rough sea,   
+ 	And let my spirit rest amidst the past.   
 
 Hitherto my philosophy had been distinctly juvenile and empirical. It was a revolt from obvious falsities and ugliness, but involved no particular cosmic or ethical theory. In ethical xxxxxxxx questions I had no analyⓍtical interest because I did not realise that they were questions. I accepted Victorianism, with con- sciousness of many prevailing hypocrisies and aside from Sabbatarianism and supernatural matters, without dispute; never having heard of inquiries which reached "beyond good and evil". Though at times interested in reforms, notably prohibition, I was inclined to be bored by ethical casuistry; since I believed conduct to be a matter of taste and breeding, with virtue, delicacy, and truthful- ness as symbols as gentility. Of my word and honour I was inordinately proud, and would permit no reflections to be cast upon them. I thought ethics too obvious and commonplace to be scientifically discussed, and considered philosophy solely in its relation to truth and beauty. I was, and still am, pagan to the core. Regarding man's place in Nature, and the structure of the universe, I was as yet unawakened, This awakening was to come in the winter of 1902-3, when astronomy asserted its supremacy amongst my studies.
 
@@ -35,53 +35,53 @@ By the way, I hope you can pardon my garrulousness today. What moves me to such 
 
 TO MR. HOAG, UPON HIS 95RD BIRTHDAY
 
-Warm eastern winds, with Grecian perfumes fragrant,
-	Play soft about thee tho' the plain be cold,
-And music trembles from each airy vagrant
-	That hails thee: "Ninety-three, but never old!"
+Warm eastern winds, with Grecian perfumes fragrant,   
+	Play soft about thee tho' the plain be cold,   
+And music trembles from each airy vagrant   
+	That hails thee: "Ninety-three, but never old!"   
 
-Breezes from green Cithaeron call thee brother,
-	Bearing the glow of many an ancient sun;
- Arcadian airs to thee and one another 
- 	Whisper the lore that makes ye all as one.
+Breezes from green Cithaeron call thee brother,   
+	Bearing the glow of many an ancient sun;   
+ Arcadian airs to thee and one another    
+ 	Whisper the lore that makes ye all as one.   
 
-From Naxian shores a purple breath diurnal
-	Brings dreams of vineyards basking sweet at noon, 
- Whilst Latmos sends a gift of youth supernal,
- 	Filch'd from the dower of an enamour'd moon,
+From Naxian shores a purple breath diurnal   
+	Brings dreams of vineyards basking sweet at noon,    
+ Whilst Latmos sends a gift of youth supernal,   
+ 	Filch'd from the dower of an enamour'd moon,   
 
-And ev'ry gentle wanderer aërial 
-	Is vocal with the chant of elder choirs; 
- With songs of love divine and immaterial,
- 	Bright with the fervour of forgotten fires.
+And ev'ry gentle wanderer aërial    
+	Is vocal with the chant of elder choirs;    
+ With songs of love divine and immaterial,   
+ 	Bright with the fervour of forgotten fires.   
 
-The Delian string for thee again is sounded,
-	And Faunus wakes once more the oaten reed; 
- Old haunting tunes, of faery spells compounded, 
- 	Distil thee flow'rs from a nymphaéan mead.
+The Delian string for thee again is sounded,   
+	And Faunus wakes once more the oaten reed;    
+ Old haunting tunes, of faery spells compounded,    
+ 	Distil thee flow'rs from a nymphaéan mead.   
 
-Crystal and roseal, azure, gold, and argent,
-	Flow'rs of a ripen'd wizardry of sight;
- Flow'rs that adorn the visionary margent 
- 	Of some celestial stream or lake of light.
+Crystal and roseal, azure, gold, and argent,   
+	Flow'rs of a ripen'd wizardry of sight;   
+ Flow'rs that adorn the visionary margent    
+ 	Of some celestial stream or lake of light.   
 
-These dost thou ever, dreamer Apollonian,
-	Weave in gay wreaths to deck our drear abode;
- As on thy brow the nobler crown Aonien 
- 	Sits to reward thee for each joy bestow'd.
+These dost thou ever, dreamer Apollonian,   
+	Weave in gay wreaths to deck our drear abode;   
+ As on thy brow the nobler crown Aonien    
+ 	Sits to reward thee for each joy bestow'd.   
 
-Year upon year comes laden to thy portal,
-	Swelling thy store with riches rare and pure;
- Riches of mem'ry and of grace immortal,
- 	Hoarded for thee in antique vaults obscure.
+Year upon year comes laden to thy portal,   
+	Swelling thy store with riches rare and pure;   
+ Riches of mem'ry and of grace immortal,   
+ 	Hoarded for thee in antique vaults obscure.   
 
-So now as three and ninety years exalt thee 
-	To heights that winds etherial touch and charm, 
- No pow'r of grosser earth may chain or halt thee, 
- 	Or any fate thy singing spirit harm.
+So now as three and ninety years exalt thee    
+	To heights that winds etherial touch and charm,    
+ No pow'r of grosser earth may chain or halt thee,    
+ 	Or any fate thy singing spirit harm.   
 
-Kin of the aeons, rapt with visions olden,
-	Blending with the sight of loveliness sublime,
+Kin of the aeons, rapt with visions olden,   
+	Blending with the sight of loveliness sublime,   
 
 [following lines obscured by page fold]
 
